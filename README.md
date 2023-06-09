@@ -1,1 +1,3 @@
-# 150-l-k-Method-free
+# 150 dolarlık method free
+
+#coderpsycho__81
